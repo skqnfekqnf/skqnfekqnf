@@ -1,1 +1,1 @@
-My name is Kim JaeHyun
+I'm Kim JaeHyun
